@@ -1,2 +1,2 @@
-![](https://64.media.tumblr.com/0426adbaba1d3288445c7979d4e6b653/607707aa461be9c9-aa/s540x810/39e2b7c95673c1da95860c45cc7462d2225c3732.pnj)
-pls send me asks & talk to me abt phainon/mydei/phaidei
+![](https://64.media.tumblr.com/4c8d58fc1ab514bc16e77ae21e754112/be29826c00ab55c6-ef/s2048x3072/23f5581b1343f8853344a105aa07483c7aff6d9e.pnj)
+
